@@ -1,0 +1,6 @@
+- 👋 Hello,this is @pavankumarbommu
+- 👀 I’m interested in science
+- 🌱 I’m currently learning DATA SCIENCE
+- 💞️ I’m looking to collaborate on DATA WORKS
+- 📫 How to reach me :9381017346
+- MAIL:-pavankumarbommu7569@gmail.com
