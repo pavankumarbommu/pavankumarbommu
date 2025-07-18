@@ -42,7 +42,7 @@ I'm open to working on:
 
 - 📱 **Phone**: +91 93810 17346  
 - 📧 **Email**: [pavankumarbommu7569@gmail.com](mailto:pavankumarbommu7569@gmail.com)  
-- 🔗 **LinkedIn**: [linkedin.com/in/pavankumarbommu](https://linkedin.com/in/pavankumarbommu)
+- 🔗 **LinkedIn**: [linkedin.com/in/pavankumarbommu](https://linkedin.com/in/pavan-kumar-bommu-1a312b267)
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 🌟 Let’s Build Something Great Together!**
 
